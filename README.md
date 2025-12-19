@@ -40,7 +40,7 @@ Microsoft 365 • Team Leadership • Risk Management • OSHA Safety • Electr
 - Reviewed assignments, debugged code, and reinforced core concepts  
 - Helped create a collaborative, supportive learning environment  
 
-### **Construction & Electrical Work — Chris Daniels Construction (2020–2022)**
+### **Construction & Electrical Work — Construction (2020–2022)**
 - Built residential and agricultural structures from the ground up  
 - Wired homes to code and installed roofing systems  
 - Operated heavy equipment and ensured job‑site safety  
